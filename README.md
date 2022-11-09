@@ -1,0 +1,1 @@
+# My-technical-analysis-methods
